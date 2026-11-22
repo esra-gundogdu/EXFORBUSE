@@ -1,2 +1,2 @@
 //kodumun kodunu yaz 
-uhosýjdpokiapfgnl
+YETERRR
